@@ -1,4 +1,4 @@
-![SobhanVaziriLogo](https://github.com/SobhanVaziri/SobhanVaziri/assets/160171825/c1d88e9b-cc23-4d14-829a-dc11cc066e58)
+![SobhanVaziriLogo](https://github.com/SobhanVaziri/SobhanVaziri/assets/160171825/51a46809-774e-4f87-a131-6d2be03aacca)
 
 
 
