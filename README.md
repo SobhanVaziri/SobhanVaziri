@@ -3,7 +3,6 @@
 
 
 # 💫 About Me:
-Hi my name is Sobhan<br>
 👨🏻‍🎓 Computer engineering student<br>
 
 
