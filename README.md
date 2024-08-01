@@ -1,5 +1,4 @@
-![SobhanVaziriLogo](https://github.com/SobhanVaziri/SobhanVaziri/assets/160171825/51a46809-774e-4f87-a131-6d2be03aacca)
-
+<img src="https://github.com/SobhanVaziri/SobhanVaziri/assets/160171825/51a46809-774e-4f87-a131-6d2be03aacca" alt="logo" />
 
 
 # 💫 About Me:
